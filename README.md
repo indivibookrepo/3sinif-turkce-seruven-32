@@ -1,0 +1,1 @@
+# 3sinif-turkce-seruven-32
